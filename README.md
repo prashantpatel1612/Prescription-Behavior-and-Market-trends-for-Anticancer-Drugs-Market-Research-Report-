@@ -1,0 +1,2 @@
+# Prescription-Behavior-and-Market-trends-for-Anticancer-Drugs-Market-Research-Report-
+Conducted an in-depth market research study analyzing prescription behavior, treatment patterns, and brand preferences for  anticancer drugs across India. Evaluated market trends, key players, and therapy-wise adoption using secondary research  and data analysis. Derived actionable insights to support strategic decision-making in oncology markets. 
